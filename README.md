@@ -41,3 +41,15 @@
 这几个认证都过了久可以使用dogpay支付了
 
 美国地址可以使用 https://usaddressgen.com/en/  选俄勒冈州(Oregon 简写是OR)，这个州是美国免税州，购买很多东西都不用而外花钱
+
+
+
+
+下面是我邀请码
+
+82042087
+
+
+https://dogpay.com/us/register?reffercode=82042087
+
+大家可以的话可以填一下我邀请码吗
